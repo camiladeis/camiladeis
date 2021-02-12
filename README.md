@@ -1,0 +1,5 @@
+- 👋  Hi, I’m @camiladeis
+- 👀  I’m interested in UX and UI Design, audiovisual and animation.
+- 🌱  I’m currently learning UX Writing
+- 💞️  I’m looking to collaborate on UX research
+- 📫  Reach me at diazriquelme.c@gmail.com
